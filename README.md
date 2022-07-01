@@ -1,4 +1,4 @@
-<h3 align="center">Official Account shifted to : gun-py</h3>
+<h3 align="center">Official Account shifted to :</h3>
 
 Fell Pain, contemplate Pain, accept Pain. Longed by peace, you become shallow. If you hurt, you shall be hurt. Hatred is what connects this cause and effect. Without pain, you cannot grow...
 
